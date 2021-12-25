@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ibirby.github.io/rsschool-cv/cv
